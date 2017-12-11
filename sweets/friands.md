@@ -51,10 +51,6 @@ Pour the batter into the muffin tins so that it comes two thirds of the way up t
 Once the friands have cooled, make the glaze, if using. Whisk together the lemon juice and icing sugar in a small bowl, adding more lemon juice or sugar if needed to make a thick yet easily pourable glaze. Spoon it liberally over the friands (not your friends) letting the icing drip down the sides. Sprinkle with the chopped pistachios and put a couple of berries on top if you have them to spare. 
 
 
-##Goes well with
-
-Saturdays
-
 ##Storage
 
 They probably won't last long - we eat them really quickly. If you are partial to restraint, stick them in an airtight box. 
